@@ -11,5 +11,8 @@
   * iblis , angel 
   * mountains , sky , rain
   * Allah , lord , merciful , forgive , penalty
+
+
+
 ![image](https://user-images.githubusercontent.com/64399795/222951366-2db13ab3-e8c8-44d5-804d-7d1fbfd3a8a7.png)
 ![image](https://user-images.githubusercontent.com/64399795/222951390-ccb991e6-2d42-4b4f-94f7-306085ea5c15.png)
